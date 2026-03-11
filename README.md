@@ -1,1 +1,0 @@
-# bolsistas-2026
